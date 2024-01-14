@@ -1,4 +1,4 @@
-![Ethereum](https://bayodeolorundare.com/wp-content/uploads/2024/01/hero.94a1ecc4.png)
+![This is an image](https://bayodeolorundare.com/wp-content/uploads/2023/02/tableau_hero.jpg)
 
 # Ethereum Blockchain Stats
 
