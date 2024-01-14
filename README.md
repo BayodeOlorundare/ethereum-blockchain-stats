@@ -1,4 +1,4 @@
-![Ethereum](https://ethereum.org/static/28214bb68eb5445dcb063a72535bc90c/9019e/hero.webp)
+![Ethereum](https://bayodeolorundare.com/wp-content/uploads/2024/01/hero.94a1ecc4.png)
 
 # Ethereum Blockchain Stats
 
